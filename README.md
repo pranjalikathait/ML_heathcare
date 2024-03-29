@@ -1,0 +1,1 @@
+Casestudy about healthcare industry
